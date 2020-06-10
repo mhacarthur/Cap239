@@ -4,4 +4,4 @@
 
 ## Professor: Reinaldo Rosa
 
-### Primer trimestre 2020
+### 2020
